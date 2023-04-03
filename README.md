@@ -16,7 +16,7 @@ Me considero una persona sencilla, me encanta el fútbol soy fanático de Racing
 lo considero un hobbie además de ir al gimnasio, en mis tiempos libres me gusta jugar a la compu, a la pelota,
 juntarme con mis amigos, ver una serie o peli, o relajarme, actualmente estoy trabajando con mi papá como carpintero.
 
-### **Mi instagram** [Mi Instagram](https://www.instagram.com/facuun.accaino/)
+### [Mi Instagram](https://www.instagram.com/facuun.accaino/)
 
 
 ## Metas de este año
